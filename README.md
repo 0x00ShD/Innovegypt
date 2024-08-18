@@ -1,0 +1,2 @@
+# Innovegypt
+ InnoEgypt (Innovation and Entrepreneurship in Egypt) is a program designed to promote and support innovation and entrepreneurship in Egypt. It is typically run by various organizations, including government bodies, universities, and international partners, with the aim of fostering a culture of innovation, supporting startups, and developing the skills necessary for entrepreneurs to succeed.
